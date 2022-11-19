@@ -1,0 +1,5 @@
+- Hey there, Im Excelline/Audiofringe
+- I'm not actually here to code or stuff.
+- I'm just here to download stuff.
+- I'm not collabing
+- I work on fnf stuff
